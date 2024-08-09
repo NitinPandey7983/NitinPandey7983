@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning engineering with a focus on CSE branch 
 - 💞️ I’m looking to: collaborate on as a student  I am eager to work with others and gain practical experience
 - 📫 How to reach me: feel free to reach me out nitinpandey7983@gmail.com or contact me on my linkedin profile Nitin Pandey
-- 😄 Pronouns:he\his
+- 😄 Pronouns:he\him
 - ⚡ Fun fact: i like to play multiplier games 
 
 <!---
